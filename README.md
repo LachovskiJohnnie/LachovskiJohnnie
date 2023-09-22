@@ -12,6 +12,8 @@ My name is: Johnnie Augusto Lachovski 🇧🇷
 
 **Johnnie.lachovs@gmail.com**
 
-**@Johnnielachovski**
+**@Johnnielachovski**               ![]()
 
-![](https://media.tenor.com/x5Gmwp4rpscAAAAd/speedball-russian-viacheslav.gif)
+
+![](https://media.tenor.com/MNajqWDUsuUAAAAC/eu-sabo-albert-einstein.gif)                        ![]([https://media.tenor.com/l0qiokc8iCQAAAAC/panther-black-panther.gif) 
+ ![](https://media.tenor.com/1HIGq0hCXP0AAAAd/oppenheimer-oppenheimer-movie.gif)
